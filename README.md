@@ -40,3 +40,8 @@ Vassago X Stolas; I think they're so cute! But I feel sorry for Blitz ☹️
 
 6 *useless* I like listening to sad music to feel even worse 🫂.
 OKAY! BYEEEE !!!! 🥹 
+
+<p align="center">
+  <img src="937a403b46bc273aadd503fcc1a06e2b.jpg" width="200">
+</p>
+                    —— help me —— 😭
