@@ -20,6 +20,7 @@
 📻x🐏 - 𝓡𝒂𝒅𝒊𝒐𝓑𝒆𝒍𝒍𝒆 :: 𝑶𝒌𝒌; I'm not going to lie, I liked the pilot episode!
 
 📺x🐏 - 𝓢𝒕𝒂𝒕𝒊𝒄𝓑𝒆𝒍𝒍𝒆 :: 𝑰 𝑳𝑶𝑶𝑶𝑽𝑬; It doesn't make sense to you, but it does to me! I love their cute art. :3
+
 Other: Idk 😶 
 
 𝑨𝑩𝑻 𝑺𝑯𝑰𝑷𝑺 — helluva
@@ -34,7 +35,7 @@ Vassago X Stolas; I think they're so cute! But I feel sorry for Blitz ☹️
 — IDK now —  
 
 <p align="center">
-  <img src="phsm_20261106221557.png" width=400
+  <img src="ocxcanon_sillydoodle.png" width=200
 </p>
                   
                        —— help me —— 😭
