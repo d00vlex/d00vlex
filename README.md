@@ -19,9 +19,13 @@
 
 📻x🐏 - 𝓡𝒂𝒅𝒊𝒐𝓑𝒆𝒍𝒍𝒆 :: 𝑶𝒌𝒌; I'm not going to lie, I liked the pilot episode!
 
-📺x🐏 - 𝓢𝒕𝒂𝒕𝒊𝒄𝓑𝒆𝒍𝒍𝒆 :: 𝑰 𝑳𝑶𝑶𝑶𝑽𝑬; It doesn't make sense to you, but it does to me! I love their cute art. :3
+📺x🐏 - 𝓢𝒕𝒂𝒕𝒊𝒄𝓑𝒆𝒍𝒍𝒆 :: 𝑰 𝑳𝑶𝑶𝑶𝑽𝑬; It doesn't make sense to you, but it does to me! I love their cute art. 
 
-Other: Idk 😶 
+<p align="center">
+  <img src="270 Sillycat_20261106224817.png" width=100
+    </p>
+
+
 
 𝑨𝑩𝑻 𝑺𝑯𝑰𝑷𝑺 — helluva
 
@@ -31,8 +35,9 @@ Vassago X Stolas; I think they're so cute! But I feel sorry for Blitz ☹️
 
 🐺x🦉 Loona X Octavia; I even shipped them a little, I think they're cute, but I think they'd be more like friends 🙃
 
-
+# See my straw page plissss !! ♪⁠～⁠(⁠´⁠ε⁠｀⁠ ⁠)
 — IDK now —  
+
 
 <p align="center">
   <img src="ocxcanon_sillydoodle.png" width=200
