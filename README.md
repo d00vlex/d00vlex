@@ -1,7 +1,7 @@
 # HII PEOPLE! 𐔌🫂𐦯
 
 <p align="center">
-  <img src="OcXCanon𐔌𐦯_202102894707.png" width=
+  <img src="5f1a4c987a885515f00043f58f50275c.jpg" width=
   <P>
 
     
