@@ -1,4 +1,4 @@
-# HII PEOPLE! 𐔌🫂𐦯
+# 𝓗 𝑖𝑖 𝑝𝑒𝑜𝑝𝑙𝑒! 𐔌🫂𐦯
 
 <p align="center">
   <img src="5f1a4c987a885515f00043f58f50275c.jpg" width=
@@ -21,10 +21,6 @@
 
 📺x🐏 - 𝓢𝒕𝒂𝒕𝒊𝒄𝓑𝒆𝒍𝒍𝒆 :: 𝑰 𝑳𝑶𝑶𝑶𝑽𝑬; It doesn't make sense to you, but it does to me! I love their cute art. 
 
-<p align="center">
-  <img src="270 Sillycat_20261106224817.png" width=100
-    </p>
-
 
 
 𝑨𝑩𝑻 𝑺𝑯𝑰𝑷𝑺 — helluva
@@ -35,7 +31,7 @@ Vassago X Stolas; I think they're so cute! But I feel sorry for Blitz ☹️
 
 🐺x🦉 Loona X Octavia; I even shipped them a little, I think they're cute, but I think they'd be more like friends 🙃
 
-# See my straw page plissss !! ♪⁠～⁠(⁠´⁠ε⁠｀⁠ ⁠)
+# 𝑺𝒆𝒆 𝒎𝒚 𝒔𝒕𝒓𝒂𝒘 𝒑𝒂𝒈𝒆 𝒑𝒍𝒔𝒔𝒔.ᐟ ౨ৎ
 — IDK now —  
 
 
