@@ -1,8 +1,13 @@
 # HII PEOPLE! 𐔌🫂𐦯
 
 <p align="center">
-  <img src="OcXCanon𐔌𐦯_202102894707.png" width="200">
-</p>
+  <img src="OcXCanon𐔌𐦯_202102894707.png" width=
+  <P>
+
+    
+    
+
+
 ʜᴇʟʟᴏ(•̀’◡’•̀)ﾉ!! 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒊𝒔 𝒅𝟎𝟎𝒗𝒍𝒆𝒙, I'm a low-profile artist, but I like to interact a little!🙂‍↕️
 𝑰'𝒎 𝒂 𝑯𝒂𝒛𝒃𝒊𝒏 𝒉𝒐𝒕𝒆𝒍 / 𝑯𝒆𝒍𝒍𝒖𝒗𝒂 𝑩𝒐𝒔𝒔 𝒇𝒂𝒏! 
 
