@@ -47,6 +47,7 @@ Vassago X Stolas; I think they're so cute! But I feel sorry for Blitz ☹️
 OKAY! BYEEEE !!!! 🥹 
 
 <p align="center">
-  <img src="937a403b46bc273aadd503fcc1a06e2b.jpg" width="200">
+  <img src="phsm_20261106221557.png" width=400
 </p>
-                    —— help me —— 😭
+                  
+                       —— help me —— 😭
