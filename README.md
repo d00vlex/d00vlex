@@ -29,22 +29,9 @@ Other: Idk 😶
 Vassago X Stolas; I think they're so cute! But I feel sorry for Blitz ☹️
 
 🐺x🦉 Loona X Octavia; I even shipped them a little, I think they're cute, but I think they'd be more like friends 🙃
- — IDK now — 
 
- Well, that's it! Now here are some useless facts about me!
 
-1 I like taco 🌮 
-
-2 I'm an introvert 🤫
-
-3 I'm not good at interacting / However, I really want friends ☹️
-
-4 I like to draw! I used to post a lot of my drawings, but I stopped and made most of them private 😭
-
-5 💬 I'm good at venting! I am a good listener.
-
-6 *useless* I like listening to sad music to feel even worse 🫂.
-OKAY! BYEEEE !!!! 🥹 
+— IDK now —  
 
 <p align="center">
   <img src="phsm_20261106221557.png" width=400
