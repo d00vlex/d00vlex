@@ -8,28 +8,50 @@
     
 
 
-ʜᴇʟʟᴏ(•̀’◡’•̀)ﾉ!! 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒊𝒔 𝒅𝟎𝟎𝒗𝒍𝒆𝒙, I'm a low-profile artist, but I like to interact a little!🙂‍↕️
+! 💭 Hello everyone, my name is D00vlex! but you can call me d00vy :3 
+I'm a low-profile artist and I really like the Hellaverse! (except for a few thin gs) 
+˚ ༘ ೀ⋆｡˚ 
+
+
+
+
+       — DNC or Inspo my skins —
+
+If you want to get inspiration for something in my skins,
+ask me in a whisper first!
+
+
+
 𝑰'𝒎 𝒂 𝑯𝒂𝒛𝒃𝒊𝒏 𝒉𝒐𝒕𝒆𝒍 / 𝑯𝒆𝒍𝒍𝒖𝒗𝒂 𝑩𝒐𝒔𝒔 𝒇𝒂𝒏! 
 
-𝑨𝑩𝑻 𝑺𝑯𝑰𝑷𝑺 — hazbin
+ 
+          
+          — 𝑨𝑩𝑻 𝑺𝑯𝑰𝑷𝑺 — hazbin — 
 
-📻x🍎 - 𝓡𝒂𝒅𝒊𝒐𝓐𝒑𝒑𝒍𝒆 :: 𝑴𝒆𝒅𝒊𝒖𝒎; I actually like it a little, but most of the fans are a bit toxic.
+
+
+📻x🍎 - 𝓡𝒂𝒅𝒊𝒐𝓐𝒑𝒑𝒍𝒆 :: 𝑴𝒆𝒅𝒊𝒖𝒎; I actually like it a little, but most of the fans are a bit toxic, Just like the ones from RadioStatic, but I think some of the artwork from both is cute :)
+
 
 📻x📺 - 𝓡𝒂𝒅𝒊𝒐𝓢𝒕𝒂𝒕𝒊𝒄 :: 𝑰 𝑳𝒊𝒌𝒆!; I like it, it even has a certain dynamic to it, I love the fan art from talented artists!
 
+
 📻x🐏 - 𝓡𝒂𝒅𝒊𝒐𝓑𝒆𝒍𝒍𝒆 :: 𝑶𝒌𝒌; I'm not going to lie, I liked the pilot episode!
+
 
 📺x🐏 - 𝓢𝒕𝒂𝒕𝒊𝒄𝓑𝒆𝒍𝒍𝒆 :: 𝑰 𝑳𝑶𝑶𝑶𝑽𝑬; It doesn't make sense to you, but it does to me! I love their cute art. 
 
 
 
-𝑨𝑩𝑻 𝑺𝑯𝑰𝑷𝑺 — helluva
+       — 𝑨𝑩𝑻 𝑺𝑯𝑰𝑷𝑺 — helluva — 
 
-😈x🦉Stoliz I think; I like it! However, I'm being poorly fed in season 3 😭
+😈x🦉Stoliz (I think) :: I like it! However, I'm being poorly fed in season 3 😭
 
-Vassago X Stolas; I think they're so cute! But I feel sorry for Blitz ☹️
 
-🐺x🦉 Loona X Octavia; I even shipped them a little, I think they're cute, but I think they'd be more like friends 🙃
+Vassago X Stolas :: I think they're so cute! But I feel sorry for Blitz ☹️
+
+
+🐺x🦉 Loona X Octavia :: I even shipped them a little, I think they're cute, but I think they'd be more like friends 🙃
 
 # 𝑺𝒆𝒆 𝒎𝒚 𝒔𝒕𝒓𝒂𝒘 𝒑𝒂𝒈𝒆 𝒑𝒍𝒔𝒔𝒔.ᐟ ౨ৎ
 — IDK now —  
@@ -39,4 +61,4 @@ Vassago X Stolas; I think they're so cute! But I feel sorry for Blitz ☹️
   <img src="ocxcanon_sillydoodle.png" width=200
 </p>
                   
-                       —— help me —— 😭
+                 —— help me —— 😭
